@@ -1,0 +1,1 @@
+Tinydeal.com is a Hong Kong-based online shopping site who specialises in selling globally a wide range of inexpensive electronic goods and other related items.
